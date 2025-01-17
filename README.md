@@ -1,3 +1,3 @@
 Rilakkuma
 
-happy day~
+happy day
